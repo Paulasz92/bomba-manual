@@ -1,0 +1,2 @@
+# bomba-manual
+DRÓTVÁGÓ 2026 KOFFERKRÍZIS HATÁSTALANÍTÁSI KÉZIKÖNYV
